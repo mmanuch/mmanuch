@@ -2,7 +2,7 @@
 
   ## 🧭 &nbsp;About Me
 
-I am currently studying 2nd DAW at IES Teis. I am 21 years old, and day by day, I am expanding my knowledge.
+I'm currently studying 2nd DAW at IES Teis. I'm 21 years old, and day by day, I'm expanding my knowledge.
 
 
   ## 📚 &nbsp;Currently studying
